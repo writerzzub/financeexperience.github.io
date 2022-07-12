@@ -21,11 +21,11 @@ for New Capital?](https://www.techtimes.com/articles/275985/20220527/newsletter-
 
 #### Crypto/blockchain
 
-- [Elon Musk Reacts to the Theory that 'Crypto Uses too much Energy' With Explanation of Hypocrisy](https://www.techtimes.com/articles/259727/20210430/elon-musk-reacts-to-theory-that-crypto-uses-too-much-energy-with-explanation-of hypocrisy.htm)
+- [Elon Musk Reacts to the Theory that 'Crypto Uses too much Energy' With Explanation of Hypocrisy](https://www.techtimes.com/articles/259727/20210430/elon-musk-reacts-to-theory-that-crypto-uses-too-much-energy-with-explanation-of-hypocrisy.htm)
 
-- [Whales Control 94% of All ADA Supply | Only 10% of Wealthiest Cardano Addresses](https://cardanofeed.com/whales-control-94-of-all-ada-supply-only-10-of-wealthiest-cardano-addresses-27631.html)
+- [Whales Control 94% of All ADA Supply Only 10% of Wealthiest Cardano Addresses](https://cardanofeed.com/whales-control-94-of-all-ada-supply-only-10-of-wealthiest-cardano-addresses-27631.html)
 
-- [Tesla's Elon Musk and Block's Jack Dorsey on Web3 | Owned by Venture Capitalists and Not Decentralized?](https://www.techtimes.com/articles/270569/20220114/breaking-harmony-shard-0-stopped-working-7-hours-multiple-propagation.htm)
+- [Tesla's Elon Musk and Block's Jack Dorsey on Web3 Owned by Venture Capitalists and Not Decentralized?](https://www.techtimes.com/articles/270569/20220114/breaking-harmony-shard-0-stopped-working-7-hours-multiple-propagation.htm)
 
 #### NFTs
 
