@@ -66,7 +66,7 @@ for New Capital?](https://www.techtimes.com/articles/275985/20220527/newsletter-
 
 - [Top 10 Online Business Services in Demand This 2021](https://www.reviewer.today/2021/04/17/top-10-online-business-services-in-demand-this-2021/)
 
-#### FinancialLiteracy
+#### Financial Literacy
 
 - [Best Finance Apps 2021: Tracking, Budgeting, Planning](https://www.reviewer.today/2021/04/17/best-finance-apps-2021-tracking-budgeting-planning/)
 - [Top 10 Ways To Improve Your Credit Score: How To Start Building](https://www.10best.cc/top-10-ways-to-improve-your-credit-score-how-to-start-building/)
