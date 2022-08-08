@@ -19,7 +19,7 @@ for New Capital?](https://www.techtimes.com/articles/275985/20220527/newsletter-
 
 - [Anti-Hacker Company Cybersixgill Raises $35 Million in Series B Funding: Company Provides 'Early Signals' of Cyber Threats](https://www.techtimes.com/articles/272837/20220310/anti-hacker-company-cybersixgill-raises-35-million-series-b-funding.htm)
 
-#### Crypto/ Blockchain
+#### Crypto/Blockchain
 
 - [Elon Musk Reacts to the Theory that 'Crypto Uses too much Energy' With Explanation of Hypocrisy](https://www.techtimes.com/articles/259727/20210430/elon-musk-reacts-to-theory-that-crypto-uses-too-much-energy-with-explanation-of-hypocrisy.htm)
 
@@ -58,7 +58,7 @@ for New Capital?](https://www.techtimes.com/articles/275985/20220527/newsletter-
 
 - [How to Improve Your CV Without a College Degree This 2021](https://www.reviewer.today/2021/04/17/how-to-improve-your-cv-without-a-college-degree-this-2021/)
 
-#### Investing/ Real Estate
+#### Investing/Real Estate
 
 - [Top 10 College Student Investments: How To Start With Little](https://www.10best.cc/top-10-college-student-investments-how-to-start-with-little/)
 
